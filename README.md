@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a student with a exploring tech industry
+I am TECH explorer
 
 
 ## 🌐 Socials:
