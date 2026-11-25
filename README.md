@@ -1,5 +1,9 @@
 # 💫 About Me:
 I am B tech student in presidency university  
+📑 Check out my resume here - [My Resume](https://drive.google.com/file/d/1PMFPyKBoEkj3nW1qDGJJSc0G1uR2RpXN/view)
+
+- 💻 All of my projects are available on [GitHub](https://github.com/bhuvanexpo)
+
 
 
 ## 🌐 Socials:
